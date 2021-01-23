@@ -1,0 +1,1 @@
+# Kapsaml-Uygulama-Freelancer
